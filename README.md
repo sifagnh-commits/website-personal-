@@ -1,2 +1,2 @@
-# Tugas UAS Evaluasi Pendidikan Islam-
+# Tugas UAS Evaluasi Pendidikan Islam
 Sifa Gustrianika
